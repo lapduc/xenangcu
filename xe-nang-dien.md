@@ -1,4 +1,4 @@
-<a href="https://xenanglapduc.com/product-category/xe-nang-dien/">Xe nâng điện</a> là các xe nâng chạy bằng điện, pin. Bao gồm xe nâng điện đứng và ngồi lái
+<a href="https://xenanglapduc.com/product-category/xe-nang/xe-nang-dien/">Xe nâng điện</a> là các xe nâng chạy bằng điện, pin. Bao gồm xe nâng điện đứng và ngồi lái
 
 <a href="https://xenanglapduc.com/product-category/xe-nang/xe-nang-dien-dung-lai/">Xe nâng điện đứng lái</a>
 
