@@ -1,6 +1,6 @@
 <a href="https://xenanglapduc.com/product-category/xe-nang-dien/">Xe nâng điện</a> là các xe nâng chạy bằng điện, pin. Bao gồm xe nâng điện đứng và ngồi lái
 
-<a href="https://xenanglapduc.com/product-category/xe-nang-dien-dung-lai/">Xe nâng điện đứng lái</a>
+<a href="https://xenanglapduc.com/product-category/xe-nang/xe-nang-dien-dung-lai/">Xe nâng điện đứng lái</a>
 
 Ưu điểm
 
@@ -14,7 +14,7 @@ Nhược điểm:
 
 Xe nâng điện ngồi lái
 
-<a href="https://xenanglapduc.com/product-category/xe-nang-dien-ngoi-lai/">Xe nâng điện ngồi lái</a> có hai loại gồm xe nâng điện 4 bánh và xe nâng điện 3 bánh. Ưu điểm của xe nâng điện 3 bánh là có thể hoạt động  trong nhiều môi trường. Vì so với xe điện 1,5 tấn 4 bánh cần 3,9 mét để hoạt động, Xe nâng điện 3 bánh chỉ cần 3,4 mét
+<a href="https://xenanglapduc.com/product-category/xe-nang/xe-nang-dien-ngoi-lai/">Xe nâng điện ngồi lái</a> có hai loại gồm xe nâng điện 4 bánh và xe nâng điện 3 bánh. Ưu điểm của xe nâng điện 3 bánh là có thể hoạt động  trong nhiều môi trường. Vì so với xe điện 1,5 tấn 4 bánh cần 3,9 mét để hoạt động, Xe nâng điện 3 bánh chỉ cần 3,4 mét
 
 Ưu điểm
 
