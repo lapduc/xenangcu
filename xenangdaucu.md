@@ -1,4 +1,4 @@
-Xe nâng Lập Đức chuyện bán <a href="https://xenanglapduc.com/" rel="dofollow"> xe nâng cũ</a> nhập khẩu từ nhật bản, chúng tôi cam kết sản phẩm được nhập khẩu trực tiếp từ Nhật bản, đã qua các quy trình kiểm tra, kiểm định nghiêm ngặt trước khi đến tay khách hàng.
+Xe nâng Lập Đức chuyện bán <a href="https://xenanglapduc.com/product-category/xe-nang/" rel="dofollow"> xe nâng cũ</a> nhập khẩu từ nhật bản, chúng tôi cam kết sản phẩm được nhập khẩu trực tiếp từ Nhật bản, đã qua các quy trình kiểm tra, kiểm định nghiêm ngặt trước khi đến tay khách hàng.
 
 Bên cạnh <a href="https://xenanglapduc.com/product-category/xe-nang/xe-nang-dau/"> xe nâng dầu cũ</a> thì chúng tôi còn nhiều sản phẩm khác như xe nâng xăng - gas, xe nâng điện với đủ các dòng xe nâng TOYOTA, KOMATSU, MITSUBISHI, NISSAN, TCM, NICHIYU, SUMITOMO, UNI CARRIERS,… sức nâng từ 1 tấn, 2 tấn, 2.5 tấn, 3 tấn, 3.5 tấn, 6 tấn… tới 13.5 tấn để khách hàng lựa chọn.
 
